@@ -1,4 +1,4 @@
-# 
+# Profesional scalping trading bot extensiones for Mac OS | Élite scalping trading bot extensiones for PC Windows. Featuring API de intercambio centralizado and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
